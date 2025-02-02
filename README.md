@@ -1,0 +1,2 @@
+# TranslatePro
+Politicas de Privacidad
